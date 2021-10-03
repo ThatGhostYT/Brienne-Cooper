@@ -20,5 +20,4 @@ dressmaking.
 ## Contact Me
 For more information on my pricing, services, or to place an order cotact me at:
 
-[**My Facebook**](https://www.facebook.com/brienne.cooper.5/)
-Email Me: **briennecooper06@gmail.com**
+[**My Facebook**](https://www.facebook.com/brienne.cooper.5/) or Email me at **briennecooper06@gmail.com**
